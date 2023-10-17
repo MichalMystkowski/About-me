@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Mysteques
+- 👋 Hi, I’m Michał Mystkowski
 - 👀 I’m interested in Formula 1, "Food Travelling" and Physical activity
 - 🌱 I’m currently learning Computer Science
 - 📫 How to reach me: www.linkedin.com/in/michał-mystkowski-b87a28201
